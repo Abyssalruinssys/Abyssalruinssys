@@ -1,4 +1,6 @@
-github 2
+Hii, were the abyssal ruins system!! we go by he/they/it generally so those are all good 2 use. Were bodily 19 and generally at least a little open to interacting!!
+
+at some point.. this wont look bad.. 3 - 4 business months :pray:
 
 <!--
 **Abyssalruinssys/Abyssalruinssys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

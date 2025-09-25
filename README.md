@@ -2,6 +2,8 @@ Hii, were the abyssal ruins system!! we go by he/they/it generally so those are 
 
 at some point.. this wont look bad.. 3 - 4 business months :pray:
 
+TAKE OUR CREEPY PASTA QUIZ.
+
 <!--
 **Abyssalruinssys/Abyssalruinssys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

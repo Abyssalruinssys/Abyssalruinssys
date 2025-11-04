@@ -1,5 +1,7 @@
 Hii, were the abyssal ruins system!! we go by he/they/it generally so those are all good 2 use. Were bodily 19 and generally at least a little open to interacting!!
 
+guys generation loss was real i was there /JOKE
+
 at some point.. this wont look bad.. 3 - 4 business months :pray:
 
 TAKE OUR CREEPY PASTA QUIZ.
